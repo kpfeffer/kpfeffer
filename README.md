@@ -1,6 +1,6 @@
 ### Hey! 🏄‍♂️
 #### My name is Kevin and I... 
-- 👨‍💻 work as a Project Manager at Vaillant Group
+- 👨‍💻 am a Software Engineer & Product Manager.
 - 🎸 love to stage dive to noisy music. 
 - 🧗 solve bouldering problems outside of work. 
 
